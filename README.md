@@ -1,2 +1,2 @@
 # TUe-Project
-They are all my babies tho they may not perfect, but I love them.
+They are all my babies. They may not perfect, but I love them.
